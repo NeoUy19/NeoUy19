@@ -1,4 +1,4 @@
-## SALUTATIONS !!!!! MY NAME IS NEO UY. I REALLY LIKE CODING AND LISTENING TO MUSIC
+## Salutations 👆🏻🤓
 
 <!--
 **NeoUy19/NeoUy19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
